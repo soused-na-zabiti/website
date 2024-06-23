@@ -1,0 +1,3 @@
+# sousednazabiti.cz
+
+Website directory
